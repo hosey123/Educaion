@@ -1,1 +1,1 @@
-Education thinges
+Education site
